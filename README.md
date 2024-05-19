@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DeauthNet!
+- 👀 I’m interested in Rust, Python & hacking.
+- 🌱 I’m currently learning Rust.
+- 💞️ I’m looking to collaborate on anything.
+- 📫 How to reach me: You dont.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Im dumb.
