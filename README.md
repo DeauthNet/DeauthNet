@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on anything.
 - 📫 How to reach me: You dont.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Im dumb.
+- ⚡ Fun fact: I dont know what im doing.
